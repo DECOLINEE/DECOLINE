@@ -1,3 +1,3 @@
 # DECOLINE
-MY FIRST DECOLINE 
-ilike singing and dancing
+MY FIRST site is DECOLINE 
+i like singing and dancing
